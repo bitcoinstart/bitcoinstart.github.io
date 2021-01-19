@@ -1,0 +1,1 @@
+Bitcoin Free is a friendly community helping to earn Bitcoins for free
